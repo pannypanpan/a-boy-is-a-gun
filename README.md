@@ -9,7 +9,6 @@ i love my friends with all my heart
 
 
 
-go and ask something on my retrospring.--
 ![tumblr_00f588aa0b2a62655a4faf95d1bbdeb8_717d82c5_2048](https://github.com/user-attachments/assets/fe5ff590-193b-48c5-8c8c-0f894c9d1e2e)
 -----^ from enigmatologist on tumblr!
 
